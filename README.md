@@ -1,5 +1,5 @@
 # # 2027 東北冬日絕景與星野滑雪 13 日深度彈性之旅 (EVA Air 仙台直飛版)
-
+ppt file : (https://canva.link/p8suhwsio27jmzm)
 ---
 
 ## ✈️ 航班與交通票券資訊
