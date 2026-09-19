@@ -3,7 +3,7 @@
 ---
 
 ## 🗺️ 專屬地圖與導航
-* **Google My Maps 完整地圖**：[點擊這裡開啟專屬行程地圖](https://www.google.com/maps/d/u/0/edit?mid=1bjPAUoLeXOLNT-1k4gz_XerFMRfLexs&usp=sharing)
+* **Google My Maps 完整地圖**：[點擊這裡開啟專屬行程地圖](https://www.google.com/maps/d/u/0/edit?mid=1_JkIKP2vFjj3jQafxVCGr-dYq0ftSUM&usp=sharing)
 
 ---
 
